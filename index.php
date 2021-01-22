@@ -1,6 +1,9 @@
 [
-"https://imgur.com/gallery/FtlKG",
-"https://i.imgur.com/PMmQn48.jpg",
-"https://i.imgur.com/KoGLGhA.jpg",
-"https://i.imgur.com/c8uFpsl.jpg"
+"https://i.imgur.com/NUyndLP.jpg",
+"https://i.imgur.com/PMY6beh.jpg",
+"https://i.imgur.com/AS3AcyW.jpg",
+"https://i.imgur.com/Fij0XsU.jpg",
+"https://i.imgur.com/6OeoXH7.jpg",
+"https://i.imgur.com/tUcZZtL.jpg",
+"https://i.imgur.com/Ifn02vP.jpg"
 ]
