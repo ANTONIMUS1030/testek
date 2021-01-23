@@ -59,7 +59,7 @@
 
         <p style="color:cyan;"> Feito por: Dark</p>
 
-        <p style="color:cyan;"> E-mail: <a style="color:white;" href="mailto:ricardo@hostinger.com.br"> grauderuahhh@gmail.com </a> </p>
+        <p style="color:cyan;"> E-mail: <a style="color:white;" href="mailto:ricardo@hostinger.com.br"> guh@gmail.com </a> </p>
 
  
 
