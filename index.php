@@ -1,1 +1,114 @@
-[ "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQsaKpXmTZ16W8YrShTF2miz1H_QSjpAFujPQ&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTzGo5r81eh-jeOjkTWh5OomyO6gzoU1HQ_UA&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQl7uIyXQJUdFZAcPFTStfG-PIKQYIEUSHgpw&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRVoHLhwfbbllCZLlMpJ2ShYMoA3iSzRe9ntg&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS7aQeJexyTXvLyznxxBhaeK976iqLr5dp-DA&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRahHMsr_jdmDYd98LkmhX4QtLhXMtdC6G6IQ&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSLGVprdDBqMPUt67U2OI5gquvAw3EOxZ0jUg&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRSVKW-6Ta5liaRF5Ddm5G-EElYQuIUNaIFyQ&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSe2bOJ8hJNZH3DSbkaV-tx6V8tPnhA_TlAqA&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRkUz62yXcbJcwPKhoTOjttbs0IxBKQqQNn_w&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS75m02MSqgYzDBoxZIA8qYiTQ4kMT3fkcE0A&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRMA1NkTmx3JHkfJ74o4ves_C6V8uEcDkLHQQ&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4SmPE39JyEAQOXt8A_bxYN9eja6y6K9-tRw&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR3etCvTOeyIjZphY1QDHuz5_HkqDfF5bFwaA&usqp=CAU","https://noticiasdem3rda.com/wp-content/uploads/2019/10/1-25.png","https://noticiasdem3rda.com/wp-content/uploads/2019/10/2-17.png","https://noticiasdem3rda.com/wp-content/uploads/2019/10/2-17.png","https://noticiasdem3rda.com/wp-content/uploads/2019/10/3-14.png","https://noticiasdem3rda.com/wp-content/uploads/2019/10/15-12.jpg","https://noticiasdem3rda.com/wp-content/uploads/2019/10/18-9.jpg","https://noticiasdem3rda.com/wp-content/uploads/2019/10/20-6.jpg","https://noticiasdem3rda.com/wp-content/uploads/2019/10/30-1.png","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQP9WSzXl8XratCnrhXeXfg06YNSBSCUrBryw&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTBDo280RTjJVRc-q_6k6GO187Mis0_Tzw1hA&usqp=CAU","https://www.google.com/search?q=Mia+Khalifa&client=ms-android-xiaomi-rev1&tbm=isch&prmd=vni&source=lnms&sa=X&ved=0ahUKEwi8yaKmgM_uAhVoLLkGHfz4Ah4Q_AUIFygD&biw=393&bih=682&dpr=2.75#imgrc=ACurQEJggdNp2M","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQpsP_9tLKuMYcR1gCFElgJgF6Uv4nd9nXJ-w&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ4jy9EUhGM0HVZ--wMSaOgArhpMiGfMn8ZKQ&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQVLRwaZV1JAdYcUU_yfQapI50UZUTcrz8vNA&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTsBBjqx1Wn-kVCg01w-qq4z7eFTzLvNut6mw&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRHWmFmzqOJVnreHjEPOMBiuVWudmDG6PCYSA&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRikEUOwTyTUTzuSdkNjjzn7edeuAud4cOAFw&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTUOdA1nxXRggwYeOJNe6WiN5pXFLBu7Wh3Uw&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT4YQHCpaUuQ-GPxxsWQLEJFOADJCSJAyd_uw&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRcnhmpQD1C1Dp7I2_kpi13gAsuoudOPPraog&usqp=CAU","https://www.google.com/search?q=mia+khalifa+melhores+fotos&client=ms-android-xiaomi-rev1&prmd=ivn&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiSjqfkgc_uAhUZJrkGHae5DW8Q_AUoAXoECAMQAQ&biw=393&bih=682#imgrc=TBx96DicyM_ApM&imgdii=JT2iu-SmpRjHOM","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSqOVIs-eWUjOnREXgLEkIkRPNF9blwlwQ5ZA&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSCjH0ild8hse9dUAYVxrAtcA_H-CxEE42i4w&usqp=CAU","https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTR0MgKUucns2C7drCNPLP8RgCr0r80FJD0Yg&usqp=CAU" ]
+[
+    {
+	"teks": "CPF GERADO: 884.506.490-56",
+	"image": "https://i.ibb.co/tMh2xTv/20210220-164937.jpg"
+    },
+    {
+	"teks": "CPF GERADO: 974.796.180-69",
+	"image": "https://i.ibb.co/YtdRHwG/20210220-165118.jpg"
+    },
+    {
+	"teks": "CPF GERADO: 187.616.300-39",
+	"image": "https://i.ibb.co/9gm51cN/20210220-165211.jpg"
+    },
+    {
+	"teks": "CPF GERADO: 429.449.510-33",
+	"image": "https://i.ibb.co/cksjh66/20210220-165321.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 315.970.360-64",
+    "image": "https://i.ibb.co/r2kTTMv/20210220-165415.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 170.609.870-70",
+    "image": "https://i.ibb.co/mhSxdQD/20210220-165627.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 171.618.810-56",
+    "image": "https://i.ibb.co/w6rWVtR/20210220-165744.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 647.518.770-46",
+    "image": "https://i.ibb.co/4Fj0mkD/20210220-165904.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 278.383.240-25",
+    "image": "https://i.ibb.co/SBrr0LZ/20210220-165951.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 400.138.290-33",
+    "image": "https://i.ibb.co/rtsC3H2/20210220-170059.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 791.164.510-82",
+    "image": "https://i.ibb.co/82tsDwS/20210220-170153.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 483.059.070-07",
+    "image": "https://i.ibb.co/zHPDGmt/20210220-170238.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 707.888.020-03",
+    "image": "https://i.ibb.co/mT8g6yN/20210220-170319.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 239.006.510-43",
+    "image": "https://i.ibb.co/rQqFV2f/20210220-170436.jpg"
+    },
+    {
+	"teks": "CPF GERADO: 884.506.490-56",
+	"image": "https://i.ibb.co/tMh2xTv/20210220-164937.jpg"
+    },
+    {
+	"teks": "CPF GERADO: 974.796.180-69",
+	"image": "https://i.ibb.co/YtdRHwG/20210220-165118.jpg"
+    },
+    {
+	"teks": "CPF GERADO: 187.616.300-39",
+	"image": "https://i.ibb.co/9gm51cN/20210220-165211.jpg"
+    },
+    {
+	"teks": "CPF GERADO: 429.449.510-33",
+	"image": "https://i.ibb.co/cksjh66/20210220-165321.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 315.970.360-64",
+    "image": "https://i.ibb.co/r2kTTMv/20210220-165415.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 170.609.870-70",
+    "image": "https://i.ibb.co/mhSxdQD/20210220-165627.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 171.618.810-56",
+    "image": "https://i.ibb.co/w6rWVtR/20210220-165744.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 647.518.770-46",
+    "image": "https://i.ibb.co/4Fj0mkD/20210220-165904.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 278.383.240-25",
+    "image": "https://i.ibb.co/SBrr0LZ/20210220-165951.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 400.138.290-33",
+    "image": "https://i.ibb.co/rtsC3H2/20210220-170059.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 791.164.510-82",
+    "image": "https://i.ibb.co/82tsDwS/20210220-170153.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 483.059.070-07",
+    "image": "https://i.ibb.co/zHPDGmt/20210220-170238.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 707.888.020-03",
+    "image": "https://i.ibb.co/mT8g6yN/20210220-170319.jpg"
+    },
+    {
+    "teks": "CPF GERADO: 239.006.510-43",
+    "image": "https://i.ibb.co/rQqFV2f/20210220-170436.jpg"
+    }
+]
